@@ -1,0 +1,1 @@
+# partners.fr.shopping.rakuten.com
